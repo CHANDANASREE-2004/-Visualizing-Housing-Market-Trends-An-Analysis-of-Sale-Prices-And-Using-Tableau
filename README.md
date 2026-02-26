@@ -4,9 +4,9 @@ SELFPLACED LEARNING Credly LINK
 
 2.https://www.credly.com/users/paggala-sirisha
 
-https://www.credly.com/badges/f5d0372c-d8ff-4537-8b48-d9bd58e0466e/whatsapp
+3.https://www.credly.com/badges/f5d0372c-d8ff-4537-8b48-d9bd58e0466e/whatsapp
 
-https://www.credly.com/badges/8f6810e4-cd57-4fdc-8872-0874b1b5016e/whatsapp
+4.https://www.credly.com/badges/8f6810e4-cd57-4fdc-8872-0874b1b5016e/whatsapp
 
 
 DEMO VIDEO LINK
